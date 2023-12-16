@@ -1,2 +1,3 @@
-# Cheat-Games
-Cheats e Jogos mobile
+# Lollll
+
+Credits: .vt compileX e d__d 
